@@ -4,6 +4,7 @@ instant Pot Beans
 
 My favorite bean recipe.
 
+Pairs like a pear with creamy peanut butter.
 
 Ingredients:
 
