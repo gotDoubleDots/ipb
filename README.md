@@ -28,6 +28,7 @@ scratching metal of pot, also because it's effective/efficient), and adding next
 
 switch water between soak and cook
 
-1.75 cup water : 1 cup lentil
-Scaled-down flavoring 
+1.75 cup water : 1 cup lentil (make 1 cup of lentils at once)
+
+Flavoring proportioned from bean recipe to lentils by water volume 
 
