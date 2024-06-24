@@ -30,5 +30,4 @@ switch water between soak and cook
 
 1.75 cup water : 1 cup lentil
 Scaled-down flavoring 
-Green lentils
 
