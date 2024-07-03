@@ -32,3 +32,4 @@ switch water between soak and cook
 
 Flavoring proportioned from bean recipe to lentils by water volume 
 
+These go well with honey and/or Greek Yogurt
