@@ -23,7 +23,7 @@ Fill instant pot with 4 cups of cold filtered water. Add 2.5 tbsp Bragg ACV, 1 t
 
 Each ingredient goes in separately; wait 30 seconds after adding ingredient to stir, stir 30 seconds, wait 3 minutes between finishing thorough stir process with spatula, and adding next ingredient. 
 
-Add beans. Set instant pot to 45 minutes, all default but not
+Add beans. Allow 30 second sit, stir seconds, then wait 3 minutes before setting inner pot within home Instant Pot. Set instant pot to 45 minutes, all default but not
 "keep warm". Natural release to full pressure equilibration. Open 2-5 minutes after equilibrium.
 
 ### Green Lentil Variant
